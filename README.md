@@ -8,3 +8,4 @@
 
 •	📫 Feel free to contact me anytime gchurguliya@gmail.com 
 
+Studing at DataTalksClub Data Engineering Zoomcamp!! #gezoomcamp 
